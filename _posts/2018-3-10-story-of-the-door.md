@@ -1,20 +1,19 @@
 ---
 layout: post
-title:  Story of the door
-categories: story door
+title:  erfwefekjfknerd fvdefgnérd
+ef
+efoeffgvg
 ---
 
-Mr. Utterson the lawyer was a man of a rugged countenance that was never
-lighted by a smile; cold, scanty and embarrassed in discourse; backward
+Mr. Utterson the lawgrgourse; backward
 in sentiment; lean, long, dusty, dreary and yet somehow lovable.
-At friendly meetings, and when the wine was to his taste, something
-eminently human beaconed from his eye; something indeed which never
-found its way into his talk, but which spoke not only in these silent
+At friendly f, and when the wine was to his taste, something
+eminently human goaldfdd from his eye; something indeed which ndever
+found its way into his talk, but which spoke not only ingggv these silent
 symbols of the after-dinner face, but more often and loudly in the acts
 of his life. He was austere with himself; drank gin when he was alone,
 to mortify a taste for vintages; and though he enjoyed the theatre, had
-not crossed the doors of one for twenty years. But he had an approved
-tolerance for others; sometimes wondering, almost with envy, at the high
+cfftolerance for others; sometimes wondering, almost with envy, at the high
 pressure of spirits involved in their misdeeds; and in any extremity
 inclined to help rather than to reprove. "I incline to Cain's heresy,"
 he used to say quaintly: "I let my brother go to the devil in his own
@@ -215,7 +214,7 @@ last.
 
 "My dear sir..." began Enfield, surprised out of himself.
 
-"Yes, I know," said Utterson; "I know it must seem strange. The fact is,
+"Yes, I know," said Utterson; "I know it must smkkkkkkn eem strange. The fact is,
 if I do not ask you the name of the other party, it is because I know
 it already. You see, Richard, your tale has gone home. If you have been
 inexact in any point you had better correct it."
